@@ -1,4 +1,4 @@
-# [Map] Sea Port Farm
+# [Map] Seaport Farm
 
 
 Join on GMZ Community: [https://discord.gg/J2MVhGJ](https://discord.gg/J2MVhGJ)
